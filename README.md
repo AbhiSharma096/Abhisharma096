@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **Abhishek Sharma**
 
-- 📄 Know about my experiences [https://resume.io/r/r7q36MF32](https://resume.io/r/r7q36MF32)
+- 📄 Know about my experiences [https://resume.io/r/r7q36MF32](https://rxresu.me/abhisheksharma10a/abhisheksharma096)
 
 - ⚡ Fun fact **Coding has over 700 languages.**
 
