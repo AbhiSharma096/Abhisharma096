@@ -14,9 +14,9 @@
 
 - 💬 Ask me about **Kotlin, C++, C,Android Studio, Flutter**
 
-- 📫 How to reach me **Abhishek Sharma**
+- 📫 How to reach me [Abhisheksharma10a@gmail.com](Abhisheksharma10a@gmail.com)
 
-- 📄 Know about my experiences [https://resume.io/r/r7q36MF32](https://rxresu.me/abhisheksharma10a/abhisheksharma096)
+- 📄 Know about my experiences [My Resume ](https://rxresu.me/abhisheksharma10a/abhisheksharma096)
 
 - ⚡ Fun fact **Coding has over 700 languages.**
 
